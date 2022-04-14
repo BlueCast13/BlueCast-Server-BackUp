@@ -28,8 +28,7 @@ and enjoy your new server
 
 **Example**
 
-
-https://i.imgur.com/Xkdxh9b.jpg
+https://cdn.discordapp.com/attachments/964222177576620053/964226973868101682/Zrzut_ekranu_2022-04-14_201012.jpg
 -----------------------------------------------------------------------------------------------------------------
 
 **Caution**
